@@ -1,0 +1,2 @@
+# root
+urut kang :v
